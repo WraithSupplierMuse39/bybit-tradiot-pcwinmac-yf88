@@ -1,4 +1,4 @@
-# 
+# Premium bybit trading bot plugins for Mac OS | VIP bybit trading bot plugins for PC Windows. Featuring centralized exchange api and dex liquidity pools — optimized for maximum performance.
 
 
 
